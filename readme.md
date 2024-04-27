@@ -1,1 +1,1 @@
-Remember the light!
+Entropic elegy of entropy
