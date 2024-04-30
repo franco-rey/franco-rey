@@ -1,1 +1,1 @@
-Entropic elegy of entropy
+Envoy of an entropic elegy.
